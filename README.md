@@ -1,1 +1,1 @@
-# Ngryna.allowed.org
+# gohaswdompas.ml
